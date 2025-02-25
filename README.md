@@ -1,1 +1,1 @@
-# 2ndbrain.github.io
+# 2ndbrain
